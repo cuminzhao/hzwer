@@ -1,4 +1,4 @@
-not my CV, copy from other for reference
+not my CV, copy from others for reference
 
 ### Hi there 👋
 
