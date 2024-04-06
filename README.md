@@ -1,3 +1,5 @@
+not my CV, copy from other for reference
+
 ### Hi there 👋
 
 - I used to be an algorithm contest player NOI🥈, ICPC-regional🏅️. 
